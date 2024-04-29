@@ -1,7 +1,7 @@
 ----
 - 🌠 dni transabled/transcum, endos/tulpas, gross ppl, anti multiship
 - 🧿 my discord is murritluver, pls add me
-- 🌺 we are into Homestuck, Hiveswap, Vast Error, Crossmound, Regretevator, Scott Pilgrim, and other stuff
+- 🌺 we are into Homestuck, Hiveswap, Vast Error, Crossmound, Regretevator, Scott Pilgrim, Wordgirl, and other shit
 - 🌴 BFYI:: we say slurs and swear often, we will rant constantly, we have intense mood swings, our timezone is EST
 <!---
 murritluver/murritluver is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
