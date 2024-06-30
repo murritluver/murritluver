@@ -1,5 +1,5 @@
 ![image](https://github.com/murritluver/murritluver/assets/168386717/34d73b98-21b1-4ff6-af9c-f6fba821d5ac)
-**JEWEL/DEIMOS**,,, READ OUR PATREON + NEW STRAWPAGE FOR INFO!! (thx to my moirail for redoing my strawpage 4 me)
+**JEWEL/DEIMOS**,,, READ OUR PATREON INFO!! 
 
 --ERIKAT/ERIQUIUS DOOMED YAOI/YURI WHEN??
 
