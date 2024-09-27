@@ -1,5 +1,5 @@
 ![image](https://github.com/murritluver/murritluver/assets/168386717/34d73b98-21b1-4ff6-af9c-f6fba821d5ac)
-**JEWEL/DEIMOS**,,, READ OUR PATREON INFO!! 
+**KIYO/KOMAEDA**,,, READ OUR PATREON INFO (for ponytown stuff idk)
 
 --ERIKAT/ERIQUIUS DOOMED YAOI/YURI WHEN??
 
