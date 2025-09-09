@@ -3,6 +3,8 @@
    
    discord : ssatorans 𓂃  bfyi : i make kms jokes, i say slurs i can reclaim sometimes, i have issues with starting convos so pls be patient !!
 
+   dni : darkship, anti recovery, basic dni ... i also block freely + hide ppl 
+
    **a**xel // angel  ...  he/she \\  [prns cc](https://prns.cc/lmudv.com)
 
 
